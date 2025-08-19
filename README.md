@@ -9,4 +9,4 @@ A hobby I've had with me ever since I was a little kid is creative writing. Thro
 ## My Playlist
 This my playlist: (https://open.spotify.com/playlist/3Yu1qewCEYaAFnQvdgg8qx)
 ## My College/MoodBoard
-![my college] (insert link here)
+![my Collage](<Screenshot 2025-08-19 121952.png>)
