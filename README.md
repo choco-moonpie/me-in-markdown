@@ -7,6 +7,6 @@ Ever since I was little I wanted to become a doctor but was unsure of what kind.
 A hobby I've had with me ever since I was a little kid is creative writing. Throughout the years I've created many stories and universes with differing generes and plots. Currently, I am working on three stories. With my friend we are co-writing a dystopian world where the goverement has lost all power and a new association takes control for the worst. Independently, I am writing two other stories, one a fantasy with heros and villians, and a murderous psychological thriller. One day, I hope to feel confident enough in my work to submit it to writing contests.
 
 ## My Playlist
-This my playlist: (insert link here)
+This my playlist: (https://open.spotify.com/playlist/3Yu1qewCEYaAFnQvdgg8qx)
 ## My College/MoodBoard
 ![my college] (insert link here)
